@@ -1,2 +1,2 @@
 # Ususerero
-Amono
+Amaano
